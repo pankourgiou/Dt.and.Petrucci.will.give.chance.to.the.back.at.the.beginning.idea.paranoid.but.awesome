@@ -1,0 +1,3 @@
+# Dt.and.Petrucci.will.give.chance.to.the.back.at.the.beginning.idea.paranoid.but.awesome
+#Ready to fall into the paranoia madness, and question: "Can I play with madness?"
+#He shows the Mesa Boogie feedback and everything...
